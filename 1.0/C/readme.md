@@ -2,7 +2,7 @@
 
 It looks like what you're searching is not public yet.
 
-Send me a mail at pseba98+githubRequest@gmail.com to see the content that was supposed to be here.
+Mail me at pseba98+githubRequest@gmail.com to see the content that was supposed to be here.
 
 Please specify what you're searching (in this case CV_EN_20210304_C)
 
